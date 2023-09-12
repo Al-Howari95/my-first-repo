@@ -19,7 +19,7 @@ Also i worked in arab wevers uonion company as a safety spicalist for 2 years <e
 
 
 - [githup](https://github.com/Al-Howari95).
-- [linkedin](hhttps://www.linkedin.com/in/mohammad-al-howari-4007151a2/).
+- [linkedin](https://www.linkedin.com/in/mohammad-al-howari-4007151a2/).
 
 
 
